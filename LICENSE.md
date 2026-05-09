@@ -1,4 +1,4 @@
-
+smart ultimate mining tycoon Script is the best ultimate mining tycoon Script, featuring esp and invisibility. Safe and powerful for all your needs.
 
 
 
